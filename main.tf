@@ -1,3 +1,3 @@
-Hi my name is Bharat
-I am from Karnataka
-I love watching webseries
+Hi my name is Sudeep
+I am from Maharastra
+I love watching netflixseries
